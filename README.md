@@ -1,6 +1,6 @@
 # Fancy network机场官网地址
 
-最新地址：[justfancy.net](https://dash.justfancy.net/register?code=XCGMxBZH)
+最新地址：[justfancy.net](https://dash.justfancy.net/register?code=AkP54vag)
 
 ## Fancy network介绍
 
